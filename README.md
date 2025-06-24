@@ -1,7 +1,8 @@
 <h2>5dm弹幕网(D站) - 免费在线动漫看|最新网址|进不去了</h2>
 <p>五弹幕网（5DM，原名dilili或嘀哩哩弹幕网），是一个以二次元文化为核心的弹幕视频网站，被广大网友亲切地称为“D站”。该网站致力于传递正能量，打造真正的二次元理想乡，为用户提供丰富的动漫、游戏、音乐、影视等资源，并通过弹幕互动功能增强用户的沉浸式体验。</p>
 <p><strong>一键访问：</strong><a href="https://www.rymdh.com/sites/15900.html" target="_blank"><strong>5dm弹幕网最新网址</strong></a></p>
-<p><strong>一键访问：</strong><a href="https://pan.quark.cn/s/0db22432c259" target="_blank"><strong>⏬经典电影/无损音乐</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://www.rymdh.com/favorites/dongmanerciyuan" target="_blank"><strong>在线看动漫/漫画导航网站大全</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank"><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 <p><strong>一键访问：</strong><a href="http://ip.harmonylink.net/share/e82025" target="_blank"><strong>海外代理网络·可看蓝光4K影视</strong></a></p>
 <p><strong>功能特点：</strong></p>
 <ol>
